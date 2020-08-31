@@ -4,4 +4,3 @@ Hi. I can provide you a working algorythm of calculating tiktok x-gorgon and x-c
 For all information please contact me at volandmordd@gmail.com
 And please be patient, I'm receiving a lot of emails every day
 
-P.S. 400 ***U***ndefined ***S***hadow ***D***ays
